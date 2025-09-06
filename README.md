@@ -1,1 +1,0 @@
-# nipon-word-study
